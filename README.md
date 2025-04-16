@@ -2,8 +2,8 @@
 > Metin Analizi ile İklim Değişikliği Farkındalık Seviyesi Ölçümü
 
 
-Yenilenebilir emnerji kaynakları kullanmak 
-agaçların kesilmesini önlemek yesil alanalrı arttırmak
+Yenilenebilir enerji kaynakları kullanmak 
+agaçların kesilmesini önlemek yesil alanları arttırmak
 güneş panellerı kullanımının yaygınlaştırılması
 fabirkalarda sıkı denetim olması bacalarda filtre zorunluluğu gibi
 
